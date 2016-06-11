@@ -1,5 +1,3 @@
-Contact Us
-
 Email:
 Twitter:
 Skype:
